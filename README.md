@@ -4,7 +4,7 @@ FiveM Mlo/Ymap Made By (⸸♱♥IDK_FORCE♥♱⸸#7611)
 - ⚙️・Join My Discord And Open Ticket To Give Me Suggestions Or Report A Bug
 
 ```My Discord```
-- [Discord](https://discord.gg/6kJ5ubDEWE)
+- [Discord](https://discord.gg/UFng7DWnWP)
 
 ## Recently Update
 ```
